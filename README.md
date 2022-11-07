@@ -20,3 +20,4 @@ Just for trial
 
 </p>
 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23000000&lines=VISAL+-+CODES!..;TRAIN+TOOL!;This+tool+only+for+educational+purposes!;Dont+use+illegally!...;coded+by+MR+WHITE+%3A)](https://git.io/typing-svg)
